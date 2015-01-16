@@ -1,2 +1,2 @@
 Brasil Messenger
-O Mais nosso Messenger do Brasil
+O Mais novo Messenger do Brasil
